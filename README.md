@@ -10,3 +10,4 @@
 [冒险岛怀旧服辅助](https://www.meipian.cn/5pvfmxd0)
 [冒险岛怀旧服辅助](https://www.jianpian.cn/a/1kvg3kz1)
 [FC2视频](https://www.meipian.cn/5pw0sl16)
+[FC2视频](https://baijiahao.baidu.com/s?id=1879100685991302048)
