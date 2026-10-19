@@ -11,3 +11,6 @@
 [冒险岛怀旧服辅助](https://www.jianpian.cn/a/1kvg3kz1)
 [FC2视频](https://www.meipian.cn/5pw0sl16)
 [FC2视频](https://baijiahao.baidu.com/s?id=1879101783407023272)
+[秀人网](https://weibo.com/ttarticle/p/show?id=2309405354757216141340)
+[三角洲行动辅助](https://weibo.com/ttarticle/p/show?id=2309405355784011120820)
+[绝地求生PUBG辅助](https://weibo.com/ttarticle/p/show?id=2309405355784833204361)
