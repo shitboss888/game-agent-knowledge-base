@@ -12,3 +12,4 @@
 [FC2视频](https://www.meipian.cn/5pw0sl16)
 [FC2视频](https://baijiahao.baidu.com/s?id=1879101783407023272)
 [PUBG辅助](https://weibo.com/ttarticle/p/show?id=2309405355856668787205)
+[LOL脚本](https://weibo.com/ttarticle/p/show?id=2309405356481515225172)
