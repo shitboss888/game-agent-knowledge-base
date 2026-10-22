@@ -14,3 +14,4 @@
 [PUBG辅助](https://weibo.com/ttarticle/p/show?id=2309405355856668787205)
 [LOL脚本](https://weibo.com/ttarticle/p/show?id=2309405356481515225172)
 [FC2](https://weibo.com/ttarticle/p/show?id=2309405356843655888961)
+[冒险岛怀旧服国际服辅助](https://weibo.com/ttarticle/p/show?id=2309405356846961000553)
